@@ -1,19 +1,31 @@
 
 
+<pre>
 <img width="1280" height="681" alt="image" src="https://github.com/user-attachments/assets/7422f3a0-a2de-41b7-8118-94e427983bd3" />
 
-Hello! you can call me cass, Lou or Connor! I’m a MINOR so 18+ please INTWEC! 
-<img width="640" height="26" alt="image" src="https://github.com/user-attachments/assets/6c0192d1-c77c-4d68-a12e-c8d08f1cd79e" />
-> [!NOTE]
-> My fandoms / interests are : Rick and Morty, Project Hail Mary, Interstellar, All the ocean 11 movies, Split Fiction, Stardew Valley,HarryPotter (not as much anymore) Percy Jackson / Magnus Chase, Any Alice Oceman Book, and SOOO much more
+Hello! Welcome to my page!! You can call me Cass! I’m a minor, so 18+ accounts please interact with caution!
 
+> [!NOTE]
+> My fandoms / interests are : Rick and Morty, Project Hail Mary, Interstellar, DC/marvel and much more!
+  basically a lot of sci-fi
+  
 > [!TIP]
 > find me at / near docks! on occasion I go out but I’m too shy aha… I mostly host or look for whiteboards!
 
 > [!WARNING]
 > I BLOCK FREELY I have no DNI besides the general (racist, sexist, homophobic / transphobic, just a straight up weirdo)
+</pre>
 
-Let’s groove broh 
-<img width="640" height="499" alt="image" src="https://github.com/user-attachments/assets/db28aff0-71b6-49ba-871e-3dd743856d5f" />
-<img width="640" height="179" alt="image" src="https://github.com/user-attachments/assets/fac4fa49-d499-4817-bc4a-cc1d5bcf0f5c" />
-<sub><sup> my ocs ! W(`0`)W </sup></sub>
+<img src="https://github.com/user-attachments/assets/db28aff0-71b6-49ba-871e-3dd743856d5f" width="300" align="left" alt="image" />
+
+<pre> FUN FACTS! I’m working on a text based game, my RaM ocs are M-922 and C-830, and I’m PINOY 🇵🇭🇵🇭🇵🇭🇵🇭 </pre>
+<pre> hopefully I’ll figure out what else to put here but for now it’s empty space :p </pre>
+<br clear="left" />
+
+  <p align="center">
+  <img src="https://github.com/user-attachments/assets/fac4fa49-d499-4817-bc4a-cc1d5bcf0f5c" width="300" alt="image" />
+</p>
+
+<p align="center">
+  <small><sub>❛ love is the one thing we’re capable of perceiving that transcends dimensions of time and space. maybe we should trust that, even if we can’t yet understand it. ❜</sub></small>
+</p>
