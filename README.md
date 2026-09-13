@@ -19,7 +19,7 @@ Hello! Welcome to my page!! You can call me Cass! I’m a minor, so 18+ accounts
 <img src="https://github.com/user-attachments/assets/db28aff0-71b6-49ba-871e-3dd743856d5f" width="300" align="left" alt="image" />
 
 <pre> FUN FACTS! I’m working on a text based game, my RaM ocs are M-922 and C-830, and I’m PINOY 🇵🇭🇵🇭🇵🇭🇵🇭 </pre>
-<pre> hopefully I’ll figure out what else to put here but for now it’s empty space :p </pre>
+<pre> oomfs : lacey, k1d, Hiro, Stella, ysa, aqua, Kira </pre>
 <br clear="left" />
 
   <p align="center">
