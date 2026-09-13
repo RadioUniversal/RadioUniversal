@@ -6,20 +6,24 @@
 Hello! Welcome to my page!! You can call me Cass! I’m a minor, so 18+ accounts please interact with caution!
 
 > [!NOTE]
-> My fandoms / interests are : Rick and Morty, Project Hail Mary, Interstellar, DC/marvel and much more!
+> ⭐ My fandoms / interests are : Rick and Morty, Project Hail Mary, Interstellar, DC/marvel and much more!
   basically a lot of sci-fi
   
 > [!TIP]
->  I’m mostly looking for whiteboards or hosting them at docks! feel free to int with me! C + H always !!
+>  ⭐ I’m mostly looking for whiteboards or hosting them at docks! feel free to int with me! C + H always !!
 
 > [!WARNING]
-> I BLOCK FREELY I have no DNI besides the general (racist, sexist, homophobic / transphobic, just a straight up weirdo)
+> ⭐ I BLOCK FREELY I have no DNI besides the general (racist, sexist, homophobic / transphobic, just a straight up weirdo)
 </pre>
 
-<img src="https://github.com/user-attachments/assets/db28aff0-71b6-49ba-871e-3dd743856d5f" width="300" align="left" alt="image" />
+<img src="https://github.com/user-attachments/assets/0efc32f5-5c7e-4af4-bb68-13ed3831357f" width="300" align="left" alt="image" />
 
-<pre> FUN FACTS! I’m working on a text based game, my RaM ocs are M-922 and C-830, and I’m PINOY 🇵🇭🇵🇭🇵🇭🇵🇭 </pre>
-<pre> oomfs : lacey, k1d, Hiro, Stella, ysa, aqua, Kira </pre>
+
+
+
+<pre> ⭐ FUN FACTS! I’m working on a text based game, my RaM ocs are M-922 and C-830, and I’m PINOY 🇵🇭🇵🇭🇵🇭🇵🇭 </pre>
+<pre> ˚　　　　✦　　　.　　. 🪐　 ˚　.　　　　 　　.　　　　　　 ✦　　　.　　˚　🌒　　　　. ✦ 　🌍  
+ 　　.  　 　　　˚　　　　　*　　 　　✦　　　.　　.　　　✦　　˚ 　　　 　　˚　.　*　　. 　˚　　. </pre>
 <br clear="left" />
 
   <p align="center">
