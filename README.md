@@ -10,7 +10,7 @@ Hello! Welcome to my page!! You can call me Cass! I’m a minor, so 18+ accounts
   basically a lot of sci-fi
   
 > [!TIP]
-> find me at / near docks! on occasion I go out but I’m too shy aha… I mostly host or look for whiteboards!
+>  I’m mostly looking for whiteboards or hosting them at docks! feel free to int with me! C + H always !!
 
 > [!WARNING]
 > I BLOCK FREELY I have no DNI besides the general (racist, sexist, homophobic / transphobic, just a straight up weirdo)
