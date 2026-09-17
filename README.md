@@ -11,7 +11,7 @@ CASS / LOU ✦ i am a minor, so 18+ accounts please interact with caution!
 > ⭐ My fandoms / interests are : Rick and Morty, Project Hail Mary, Interstellar, DC/marvel and much more!
   
 > [!TIP]
->  ⭐ I’m mostly looking for whiteboards or hosting them at docks! feel free to int with me! C + H always !!
+>  ⭐ I’m mostly hanging in the RAM spot,looking for whiteboards or hosting them at docks! 
 
 > [!WARNING]
 > ⭐ I BLOCK FREELY I have no DNI besides the obvious (T.R.A.S.H)
