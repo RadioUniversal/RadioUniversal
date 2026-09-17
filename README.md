@@ -14,7 +14,7 @@ CASS / LOU ✦ i am a minor, so 18+ accounts please interact with caution!
 >  ⭐ I’m mostly looking for whiteboards or hosting them at docks! feel free to int with me! C + H always !!
 
 > [!WARNING]
-> ⭐ I BLOCK FREELY I have no DNI besides the general (racist, sexist, homophobic / transphobic, just a straight up weirdo)
+> ⭐ I BLOCK FREELY I have no DNI besides the obvious (T.R.A.S.H)
 </pre>
 
 <img src="https://github.com/user-attachments/assets/0efc32f5-5c7e-4af4-bb68-13ed3831357f" width="300" align="left" alt="image" />
