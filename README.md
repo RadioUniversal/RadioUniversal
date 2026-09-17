@@ -1,10 +1,11 @@
 
 
 <pre>
-<img width="1280" height="681" alt="image" src="https://github.com/user-attachments/assets/7422f3a0-a2de-41b7-8118-94e427983bd3" />
+<img width="1280" height="221" alt="image" src="https://github.com/user-attachments/assets/5d12e8ed-8f4b-48fe-a807-95e569737376" />
 
-Hello! Welcome to my page!! You can call me Cass! I’m a minor, so 18+ accounts please interact with caution!
 
+CASS / LOU ✦ i am a minor, so 18+ accounts please interact with caution!
+<hr>
 > [!NOTE]
 > ⭐ My fandoms / interests are : Rick and Morty, Project Hail Mary, Interstellar, DC/marvel and much more!
   basically a lot of sci-fi
